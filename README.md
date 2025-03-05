@@ -1,1 +1,0 @@
-# assi2-neuro
